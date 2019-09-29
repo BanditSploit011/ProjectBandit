@@ -1,2 +1,10 @@
 # ProjectBandit
-http://www.smkypgusumedang.sch.id/su.php
+#AnarxhoXploit
+#Bandit.IDiots
+#AR404
+#Marshall
+#NoiseCrust
+#xServer404
+#Ramdhani07
+
+
